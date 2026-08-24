@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @F1pWnihser
+- 👋 Hi, I’m Aiden (@F1pWnihser)
 - 👀 I’m interested in coding and football
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
